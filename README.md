@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Findthetru2
 - 👀 I’m interested in learning in the Cybersecurity realm.
-- 🌱 I’m currently learning networking 
+- 🌱 I’m currently passed through the Networking segment now on with the MSA!
 - 💞️ I’m looking to collaborate on the job hunt for noobs.
 - 📫 How to reach me on Github, reach out to Findthetru2
 - 😄 Pronouns: i'm just a guy
